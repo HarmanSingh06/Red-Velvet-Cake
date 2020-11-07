@@ -5,7 +5,6 @@ How to Make Red Velvet Cake
 3. **Butter & Oil:** What sets red velvet cake apart from chocolate is its buttery flavor. With only butter, we risk a dry cake. With only oil, we lose the butter flavor and softness that comes with creaming butter & sugar together. So all that’s to say, use both butter and oil. Moist texture, soft and cakey texture, buttery flavor. Boom.
 4. **Buttermilk:** Buttermilk is tangy, creamy, and makes baked goods extremely moist. You can’t make delicious red velvet cake without it! Additionally, buttermilk helps activate the baking soda to leaven the cake.
 
-# CONFIDENTIAL: ###THIS RECIPE HAS BEEN TAKEN FROM GOOGLE.
 
 
 
